@@ -1,1 +1,1 @@
-# mensagem da Bíblia 
+# mensagem positivas aleatórias 
